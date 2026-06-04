@@ -1,4 +1,4 @@
-Is the "weekend effect" actually dead?
+Is the "weekend effect" actually dead? 
 
 ## Motivation
 
